@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @otrosinka
+- 👀 I’m currently learning
